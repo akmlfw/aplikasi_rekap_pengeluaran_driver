@@ -5,7 +5,7 @@ dikembangkan untuk keperluan operasional PT Dayamitra Telekomunikasi Tbk (Mitrat
 
 ---
 
-2024 Akmal Fawwaz Ananto
+2025 Akmal Fawwaz Ananto
 
 ---
 
